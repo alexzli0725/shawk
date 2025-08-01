@@ -1,4 +1,0 @@
-# newshawksolution
-# newshawksolution
-# shawk
-# shawk
